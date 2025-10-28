@@ -17,7 +17,7 @@ No vendemos, alquilamos ni compartimos su información personal con nadie. Sus d
 Implementamos medidas de seguridad para proteger su información. Sin embargo, ningún método de transmisión por internet es 100% seguro.
 
 ### 5. Sus Derechos
-Puede solicitar la eliminación de su cuenta y datos en cualquier momento contactándonos.
+Puede solicitar la eliminación de su cuenta y datos en cualquier momento contactándonos. Para solicitar la eliminación de su cuenta, envíe un correo a roseate.kalu@gmail.com.
 
 ### 6. Cambios a esta Política
 Podemos actualizar esta política. Le notificaremos sobre cambios significativos.
